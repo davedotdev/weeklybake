@@ -14,7 +14,7 @@
  > It was a bit chewy and the chef was rude and swore a lot. <br/> *Dave's Spouse (April 2017)*  <br/>![:|](3star.svg)
 
  <br/>
- 
+
 ## Are you Ready to Bake?
 
 1.  Prime the brain with three cups of fine Cuban roast fresh bean coffee, shaken and stirred with a pinch of sugar<sup id="a0">[0](#f0)</sup>.
@@ -37,7 +37,7 @@ __Important Notes__
 
 <b id="f2">[2]</b> You may want to keep the details vague. A surprise assassination might be an unwelcome one. [↩](#a2)
 
-<b id="f3">[3]</b> Some recipe designers are experimenting with four days. They are not yet widely applicable. If you are unable to fulful five days of baking, do not be alarmed, the ingredients will keep well beyond their shelf life and best before dates. In addition, if a near term catastrophic fate awaits you, rest in peace knowing that an average chef can pick it up without much fuss.[↩](#a3)
+<b id="f3">[3]</b> Some recipe designers are experimenting with four days. They are not yet widely applicable. If you are unable to fulful five days of baking, do not be alarmed, the ingredients will keep well beyond their shelf life and best before dates. In addition, if a near term catastrophic fate awaits you, rest in peace knowing that an average chef can pick up where you left off without any noticeable disruption.[↩](#a3)
 
 <b id="f4">[4]</b> You may find ingredients from the previous week in your bake. Do not be alarmed. Despite trashing the remaining bake, ingredients are stubborn, reufse almost any removal attempt and insist on being baked multiple times. [↩](#a4)
 
