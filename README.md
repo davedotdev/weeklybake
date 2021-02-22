@@ -1,4 +1,18 @@
-## Recipe for a Good Week
+# Recipe for a Good Week
+
+## As featured on TV
+### Just some of our Feeback
+ 
+ > ![:)](5star.svg) - Highly recommended! A+. <br/> *Dave (Monday Feb 22nd 2021)*
+ 
+<br/>&nbsp;<br/>
+ > ![:(](1star.svg) - Just awful. The ingredients just don't go together. I'd rather eat dog poo. <br/> *Dave (Friday Feb 26th 2021)*
+
+ <br/>&nbsp;<br/>
+ > ![:|](3star.svg) - It was a bit chewy and the chef was rude and swore a lot. <br/> *Dave's Spouse (April 2017)* 
+
+ <br/>&nbsp;<br/>
+## Are you Ready to Bake?
 
 1.  Prime the brain with three cups of fine Cuban roast fresh bean coffee, shaken and stirred with a pinch of sugar<sup id="a0">[0](#f0)</sup>.
 2.  Pour in five days worth of calendar invites across corporate and personal planners<sup id="a1">[1](#f1)</sup>.
