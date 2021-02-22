@@ -3,13 +3,13 @@
 ## As featured on TV
 ### Just some of our Feeback
  
- > ![:)](5star.svg) - Highly recommended! A+. <br/> *Dave (Monday Feb 22nd 2021)*
+ > Highly recommended! A+. What a visionary! <br/> *Dave (Monday Feb 22nd 2021)* </br>![:)](5star.svg)
  
 <br/>&nbsp;<br/>
- > ![:(](1star.svg) - Just awful. The ingredients just don't go together. I'd rather eat dog poo. <br/> *Dave (Friday Feb 26th 2021)*
+ > Just awful. The ingredients just don't go together. I'd rather eat dog poo rolled in Marmite. <br/> *Dave (Friday Feb 26th 2021)* </br>![:(](1star.svg) 
 
  <br/>&nbsp;<br/>
- > ![:|](3star.svg) - It was a bit chewy and the chef was rude and swore a lot. <br/> *Dave's Spouse (April 2017)* 
+ > It was a bit chewy and the chef was rude and swore a lot. <br/> *Dave's Spouse (April 2017)*  <br/>![:|](3star.svg)
 
  <br/>&nbsp;<br/>
 ## Are you Ready to Bake?
