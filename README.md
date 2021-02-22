@@ -3,15 +3,18 @@
 ## As featured on TV
 ### Just some of our Feeback
  
- > Highly recommended! A+. What a visionary! <br/> *Dave (Monday Feb 22nd 2021)* </br>![:)](5star.svg)
+ > Highly recommended! A+. What a visionary! <br/> *Dave (Monday Feb 22nd 2021)* <br/>![:)](5star.svg)
  
-<br/>&nbsp;<br/>
+<br/>
+
  > Just awful. The ingredients just don't go together. I'd rather eat dog poo rolled in Marmite. <br/> *Dave (Friday Feb 26th 2021)* </br>![:(](1star.svg) 
 
- <br/>&nbsp;<br/>
+ <br/>
+
  > It was a bit chewy and the chef was rude and swore a lot. <br/> *Dave's Spouse (April 2017)*  <br/>![:|](3star.svg)
 
- <br/>&nbsp;<br/>
+ <br/>
+ 
 ## Are you Ready to Bake?
 
 1.  Prime the brain with three cups of fine Cuban roast fresh bean coffee, shaken and stirred with a pinch of sugar<sup id="a0">[0](#f0)</sup>.
