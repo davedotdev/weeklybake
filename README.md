@@ -31,13 +31,13 @@
 ---
 __Important Notes__
 
-<b id="f0">[0]</b> Caffeine or a substitutable stimulus is the only important ingredient. Harder substances may be used, but for legal reasons, they cannot be listed or mentioned here.[↩](#a0)
+<b id="f0">[0]</b> Caffeine or a substitutable stimulus is the only important ingredient. Harder substances may be used, but for legal reasons, cannot be listed or mentioned here.[↩](#a0)
 
-<b id="f1">[1]</b> It might appear like there's two weeks worth of ingredients. Do not worry. This will reduce during the baking process. [↩](#a1)
+<b id="f1">[1]</b> You may be startled by extra ingredients appearing which significantly increases the baking mass. Do not worry, for these ingredients will reduce during the baking process. [↩](#a1)
 
-<b id="f2">[2]</b> You may want to keep the details vague. A surprise assassination might be an unwelcome one. [↩](#a2)
+<b id="f2">[2]</b> You may want to keep the details vague. An unexpected surprise assassination might be an unwelcome one and your target/s may be angry about it. [↩](#a2)
 
-<b id="f3">[3]</b> Some recipe designers are experimenting with four days. They are not yet widely applicable. If you are unable to fulful five days of baking, be not concerned, for the ingredients will keep well beyond their shelf life and best before dates. In addition, if a near term catastrophic fate awaits you, rest in peace knowing that an average chef can pick up where you left off without any noticeable disruption.[↩](#a3)
+<b id="f3">[3]</b> Some recipe designers are experimenting with a four day baking process and some of you may work part time. If you are unable to fulful five days of baking, be not concerned, for the ingredients will keep well beyond their shelf life and best before dates. In addition, if a near term catastrophic fate awaits you, rest in peace knowing that an average chef can pick up where you left off without any noticeable disruption.[↩](#a3)
 
 <b id="f4">[4]</b> You may find ingredients from the previous week in your bake. Be not alarmed. Despite trashing the remaining bake, ingredients are stubborn, reufse almost any removal attempt and insist on being baked multiple times. [↩](#a4)
 
